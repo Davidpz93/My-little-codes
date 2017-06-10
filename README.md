@@ -1,2 +1,2 @@
 # My-little-codes
-Acá es donde la magia sucede.
+Acá es donde la magia se destruye. xD
